@@ -1,3 +1,10 @@
+
+thjs made md ovulate
+
+https://github.com/user-attachments/assets/dbf27f23-19a5-42f0-9938-a4a3f05e7609
+
+
+
 im gonna kms give me motivation 
 ㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=lustangel&label=gooners&color=F5F3EA&style=solid)
 
