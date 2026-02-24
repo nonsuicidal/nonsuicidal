@@ -1,7 +1,11 @@
 
 thjs made md ovulate
 
-https://github.com/user-attachments/assets/dbf27f23-19a5-42f0-9938-a4a3f05e7609
+
+
+https://github.com/user-attachments/assets/d326181a-705d-4819-884e-74435f55504d
+
+
 
 
 
